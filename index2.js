@@ -1,1 +1,0 @@
-saya bayu pratama apa yang akan kamu lakukan jika kamu lakukan ini apa yang kamu lakukan jika kamu lakukan sekarang apa yang akan kamu lakukan kare
